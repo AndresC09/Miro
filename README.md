@@ -1,2 +1,4 @@
 # Miro
 Entrega de wireframe e-commerce personal
+Andrés Herrera
+https://miro.com/welcomeonboard/akVsV09USWFOb3ozcTRmQndTQU9ORjQrWURzZWpqOTk1NEhYOVk4dnBlU0hudEpVaTN5MER5Sy9jWmx4VFM3NWRKcWlsalZ4OE5kRFdDNVpDa0t1TkRBbzdwb3FtTjRrOUNvTVJxVWdkU1BQeGFEcm1yRnVUUVB2eVV3ekJvdUxhWWluRVAxeXRuUUgwWDl3Mk1qRGVRPT0hdjE=?share_link_id=628069051594
